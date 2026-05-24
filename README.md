@@ -18,6 +18,9 @@ I perform with attention to detail in every task.
 I have problem-solving skills
 
 
+
+
+
 Tools 
 
 Jira, Trello—project management
